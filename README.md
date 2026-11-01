@@ -89,7 +89,8 @@ My goal is to contribute to meaningful software projects, continue developing my
 
 ## 📫 Connect With Me
 
-**GitHub:** [Dsingh35718](https://github.com/Dsingh35718)
+- **LinkedIn:** [Darshdeep Singh](https://www.linkedin.com/in/darshdeep-singh-087701219/)
+- **GitHub:** [Dsingh35718](https://github.com/Dsingh35718)
 
 ---
 
